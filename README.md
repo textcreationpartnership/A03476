@@ -33,7 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE Hollanders Declaration of the affaires of the East INDIES.OR A TRVE RELATION OF THAT WHICH PASSE
+
 #####Body#####
 
 1. A TRVE RELATION OF THAT WHICH PASSED IN THE ILANDS OF BANDA, IN the East Indies: In the yeare of our Lord God 1621. and before.
